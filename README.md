@@ -8,8 +8,8 @@ anyways to use the code I've coded simply unzip the files then run "**index.html
 
 
 
+[Visit GitHub!](www.github.com)
 
-
-
+[Visit GitHub **M. Gibs** Respository](https://github.com/Icekingofmemes/magd-150-Projects)
 
 _Eat pant and feel dank and dANDY_
